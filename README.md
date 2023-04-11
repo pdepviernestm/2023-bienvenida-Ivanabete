@@ -11,7 +11,7 @@ Mi legajo es: 208.854-0
 ## Sobre mí 
 Me considero bastante tímido a la hora de conocer gente. No es que sea mala onda, sencillamente me cuesta acercarme a alguien y hablarle
 porque sí. Uno de los motivos por los que también no soy de acercarme, por ejemplo en la facultad, es porque me desconcentro fácil.
-Entonces, si me sentara con alguien que me cae bien, seguramente terminaría distraído. Y ya saben como es distraerse en la facultad,
+Entonces, si me sentara con alguien, seguramente terminaría distraído. Y ya saben como es distraerse en la facultad,
 de repente avanzaron 7 unidades, el parcial se adelantó 1 mes y además entran 4 temas más.
 Pero nada, una vez entro en confianza, me considero alguien copado.
 
@@ -29,7 +29,7 @@ Me gusta ser una persona seria cuando cuando es necesario (durante las clases, p
 
 - Soy técnico electrónico (título del secundario). Pero la realidad es que no me gusta la electrónica, me metí a técnico con otras expectativas, pero ya después no me quise cambiar. Me llevé un buen grupo de amigos del secundario y una buena base de conocimientos que me ayudó a principios del año pasado.
 
-- No me gusta el futbol. 
+- No me gusta el fútbol. 
 
 ## Sobre mí recorrido por la facultad
 Empecé el ingreso en el 2021 (en realidad era el examen libre, yo no tenía ni idea). No me fue muy bien, me quedé a un punto de aprobar y me frustré muchísimo
@@ -37,7 +37,7 @@ porque la realidad es que me esforcé mucho, pero claramente me faltaban conocim
 Ahí me di cuenta que esto ya no es el secundario, y que hay que meterle todas las ganas que tengas y más. 
 
 Volví a intentarlo a principios de 2022 (esta vez si era el ingreso) y la experiencia que me dió el examen libre me ayudó muchísimo, la realidad es que
-lo pasé como si nada. Tenía dudas muy concretas que se fueron resolviendo solas a lo largo de las clases, acompañado de un muy buen profesor.
+lo pasé como si nada. Tenía dudas específicas que se fueron resolviendo a lo largo de las clases, acompañado de un muy buen profesor.
 
 Ya empezada la carrera, el año pasado cursé 6 materias (las 6 anuales de primer año, plan viejo) y por suerte las pude promocionar a todas. Las materias cuatrimestrales las dejé para otro momento. Me gustó mucho AM1.
 
