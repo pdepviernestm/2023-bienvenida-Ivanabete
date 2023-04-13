@@ -23,7 +23,15 @@ Me gusta ser una persona seria cuando cuando es necesario (durante las clases, p
 
 - Creo que tengo toda la pinta de ser alguien aficionado a los videojuegos, y sí, lo soy, desde chiquito.
 
-- No me gustan las faltas de ortografía, por eso siempre intento escribir lo más correcto posible. Eso también desde chiquito, es como un toc.
+  Mi juego favorito es el Guild Wars 2. Es un MMORPG que juego desde los 13, al cual le dediqué muchísimo tiempo. Aunque actualmente lo tengo un poco dejado de lado,
+  siempre vuelvo a jugar cada cierto tiempo y me sigue encantando.
+  
+  En general me gustan los RPG, ya sea un MMO, un RPG por turnos (me gusta mucho Pokémon desde chiquito), etc. También me gustan los MOBA (juego al LoL), 
+  y algún que otro Battle Royale (juego al Fortnite y en su momento jugué al Apex y al PUBG).
+  
+  No me gustan mucho los FPS, como por ejemplo el counter.
+
+- No me gustan tener faltas de ortografía, por eso siempre intento escribir lo más correcto posible. Es algo que me pasa desde chiquito, es como un toc.
 
 - Soy bastante organizado, aunque se ve un poco opacado por lo mucho que tiendo a proclastinar (cosa que llevo intentando cambiar desde que empecé en la facu).   
 
